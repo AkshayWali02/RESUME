@@ -1,1 +1,1 @@
-I am actively searching job.
+I am actively searching for job.
